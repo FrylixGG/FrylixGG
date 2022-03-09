@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FrylixGG
+- I like bananas.
+- I love to program games.
+- You can see alot of my games here. (If i made a one. :|)
